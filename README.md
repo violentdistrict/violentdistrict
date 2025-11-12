@@ -1,2 +1,3 @@
 <p align="center"><img src="https://komarev.com/ghpvc/?username=fleurdeli&color=8a0303&style=for-the-badge&label=visitors&style=plastic"></p>
-im like. too lazy to pimp this up but c*h is okay idgaf unless im with my partner or friends.... also im too scared to talk to my other oomfs or strangers, youll see me sitting alone or behind a friend most of the time
+im like. too lazy to pimp this up but c*h is okay idgaf unless im with my partner or friends.... also im too scared to strike up a conversation to my other oomfs or strangers, youll see me sitting alone or behind a friend most of the time
+also if youre an ex friend that ended up on a bad term with me then leave me alonethanks????? i dont know why you guys bother reconciling with me on my strawpage or atabook just leave me alone and move on with your life please
