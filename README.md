@@ -5,3 +5,5 @@
   also im offtab/offwindow a lot because im doing stuff duh what did you expect! it would be better if you whisper me instead rather than publicly talking to me (unless friends/moots), im usually just ingame to accompany my friends there or participate in events
 </p>
 <br>
+
+also i tend to change my usernames a LOT. i was previously dearestpatient, caltrophy, hjdnoli, and other usernames i cant remember.
