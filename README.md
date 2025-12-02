@@ -1,9 +1,8 @@
 <p align="center"><img src="https://komarev.com/ghpvc/?username=fleurdeli&color=8a0303&style=for-the-badge&label=visitors&style=plastic"></p>
 
 <p align="center">
-  im like. too lazy to pretty up this up but c*h is okay, idgaf unless im with my partner or friends i guessss, idk it depends on if i feel like specifying that im not okay with cuddling EXCEPT FOR MY BUDDIES you guys have a special place in my heart ok... sign my ata if you want i dont really care
-  also im offtab/offwindow a lot because im doing stuff duh what did you expect! it would be better if you whisper me instead rather than publicly talking to me (unless friends/moots), im usually just ingame to accompany my friends there or participate in events
+  i dont have motivation to go out of my way to learn how to code, all i can really say for my pony town boundaries is that its okay if you c*h, but if im with my partner rover or my two friends (jade and ratthew) then dont cuddle unless they agree on cuddle piling. i have the tendency to be afk a lot so whisper me if you ever want to talk, chances are i wont see your message if you talk to me publicly and im just there in pony town to accompany my friends and partner.
 </p>
 <br>
 
-also i tend to change my usernames a LOT. i was previously dearestpatient, caltrophy, hjdnoli, and other usernames i cant remember.
+previously dearestpatient, hjdnoli, caltropy + other previous usernames i dont remember 👀
