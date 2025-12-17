@@ -5,4 +5,4 @@
 </p>
 <br>
 
-previously dearestpatient, hjdnoli, caltropy + other previous usernames i dont remember 👀
+previously dearestpatient, hjdnoli, caltropy + other previous usernames i dont remember
