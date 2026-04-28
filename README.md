@@ -4,7 +4,7 @@
   i dont feel like decorating this so it looks basic𓈒 i usually whisper people only to crown them, other than that i dont really pay attention to anything else unless youre actually actively talking to me via whispers𓈒 sometimes i forget i have pony town and come back every once in a while𓈒
   
 <p align="center">
-  if youre any ex of mine just leave me alone okay i dont want anything to do with you stop stalking me, hop off my dick and leave me alone ok?
+  if youre any ex of mine just leave me alone okay i dont want anything to do with you stop stalking me, hop off my dick and leave me alone ok? old friends that im on good/neu terms with are okay𓈒
 </p>
 　　　
 
