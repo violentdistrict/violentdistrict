@@ -11,5 +11,5 @@
 <br>
 
 <p align="center">
-$\text{\color{#46bdb7}previously dearestpatient, hjdnoli, caltropy + other previous usernames i dont remember ⁠(⁠‾⁠.⁠‾⁠“⁠)}$
+$\text{\color{#46bdb7}previously hjdnoli, caltropy n more ⁠(⁠‾⁠.⁠‾⁠“⁠)}$
 </p>
