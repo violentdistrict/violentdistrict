@@ -10,3 +10,6 @@
         <p align="center">
   hi this is a wip because im a lazy fat fucking chud named ron sign my atabook (https://mors.atabook.org) or something type shit
         </p>
+        <p align="center">
+        si eres mi ex amigo o ex pareja, déjame en paz. sé que me están acosando, los conozco bien
+        </p>
