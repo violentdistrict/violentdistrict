@@ -5,11 +5,10 @@
 </p>
 <div align="center">
 <p align="center"><img src="https://komarev.com/ghpvc/?username=fleurdeli&color=ffb24d&style=for-the-badge&label=visitors&style=plastic"></p>
-<p align="center"><img src="https://file.garden/aeJx18Sl-DVTPsnG/AllyGrieferTransparentGIF.webp" width=300>
+<p align="center"><img src="https://file.garden/aeJx18Sl-DVTPsnG/coilgif" width=300>
 </p>
         <p align="center">
-  hi this is a wip because im a lazy fat fucking chud named ron sign my atabook (https://mors.atabook.org) or something type shit
+  $\text{\color{#ffb24d}ac coilooil on twt𓈒}$
         </p>
-        <p align="center">
-        si eres mi ex amigo o ex pareja, déjame en paz. sé que me están acosando, los conozco bien
-        </p>
+      <p align=right"><a href="https://mors.atabook.org">
+  <img src="https://file.garden/aeJx18Sl-DVTPsnG/%E6%96%B0book" alt="atabook" width=100></p>
