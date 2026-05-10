@@ -12,3 +12,7 @@
         </p>
       <p align=right"><a href="https://mors.atabook.org">
   <img src="https://file.garden/aeJx18Sl-DVTPsnG/%E6%96%B0book" alt="atabook" width=100></p>
+  <p align="center">
+$\text{\color{#46bdb7}previously hjdnoli, caltropy n more ⁠(⁠‾⁠.⁠‾⁠“⁠)}$
+</p>
+<br>
