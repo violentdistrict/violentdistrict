@@ -8,7 +8,7 @@
 <p align="center">
         </p>
       <p align=right"><a href="https://rentry.co/paracelcus">
-  <img src="https://file.garden/aeJx18Sl-DVTPsnG/neuro" alt="rentry" width=300></p>
+  <img src="https://file.garden/aeJx18Sl-DVTPsnG/spokeishere" alt="rentry" width=300></p>
   <p align="center">
 </p>
 <br>
