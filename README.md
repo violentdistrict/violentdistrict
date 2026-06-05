@@ -8,7 +8,10 @@
 <p align="center">
         </p>
       <p align=right"><a href="https://rentry.co/paracelcus">
-  <img src="https://file.garden/aeJx18Sl-DVTPsnG/spokeishere" alt="rentry" width=500></p>
+  <img src="https://file.garden/aeJx18Sl-DVTPsnG/havoc-duo-spokeishere%20(1).gif" alt="rentry" width=300></p>
   <p align="center">
+</p>
+<p align="center">
+$\text{\color{#46bdb7}wip, click on gif for atabook ⁠(⁠‾⁠.⁠‾⁠“⁠)}$
 </p>
 <br>
