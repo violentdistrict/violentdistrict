@@ -8,11 +8,17 @@
 <p align="center">
         </p>
       <p align=right"><a href="https://spokewashere.atabook.org">
-  <img src="https://file.garden/aeJx18Sl-DVTPsnG/Untitled37_20261028193925.png" alt="suzkilli" width=300></p>
+  <img src="https://file.garden/aeJx18Sl-DVTPsnG/Untitled37_20261028193925.png" alt="suzkilli" width=350></p>
   <p align="center">
+  </p>
           <details>
-<summary> </summary>
-                  2009
-                  mentally ill
-</p>
+<summary></summary>
+                  iwc⠀
+                  2009⠀no prns⠀
+                  <details>
+                  <summary></summary>
+                  i do not support or condone anything problematic
+                  <details>
+                  <summary></summary>
+                  send me a message <a href="https://https://mors.atatbook.org">here
 <br>
