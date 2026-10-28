@@ -20,5 +20,5 @@
                   i do not support or condone anything problematic
                   <details>
                   <summary></summary>
-                  send me a message <a href="https://https://mors.atabook.org">here
+                  send me a message <a href="https://mors.atabook.org">here
 <br>
