@@ -16,7 +16,6 @@
                   
 iwc⠀2009⠀no prns⠀
 
-⠀⠀⠀
 i do not support or condone anything problematic
                   
 send me a message <a href="https://mors.atabook.org">here
