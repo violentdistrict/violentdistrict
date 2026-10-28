@@ -13,12 +13,13 @@
   </p>
           <details>
 <summary></summary>
-                  iwc⠀
-                  2009⠀no prns⠀
-                  <details>
-                  <summary></summary>
-                  i do not support or condone anything problematic
-                  <details>
-                  <summary></summary>
-                  send me a message <a href="https://mors.atabook.org">here
+                  
+iwc⠀2009⠀no prns⠀
+
+⠀⠀⠀
+i do not support or condone anything problematic
+                  
+send me a message <a href="https://mors.atabook.org">here
+                  
+</details>
 <br>
